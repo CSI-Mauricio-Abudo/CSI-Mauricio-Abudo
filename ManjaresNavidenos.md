@@ -18,7 +18,7 @@
 - *¾* taza de azúcar blanca o morena
 - *½* taza de pasas
 - Canela molida, para decorar
-- ### Procedimiento
+### Procedimiento
 1. Enjuague el arroz varias veces hasta que el agua salga clara. Sumergir
 el arroz en 2 tazas de agua (suficiente para cubrir), al menos 2 horas, preferiblemente
 durante la noche. Cuando esté listo para cocinar escurrir el arroz y reservar.
